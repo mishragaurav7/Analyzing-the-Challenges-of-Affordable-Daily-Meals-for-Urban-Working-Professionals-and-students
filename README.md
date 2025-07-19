@@ -61,7 +61,6 @@ Gaurav Mishra, Harshitha S, Priya B Badni, Mirdhula R, Krishna Hebsur, Rakshanaa
 
 ## 📬 Contact
 **Gaurav Mishra**  
-MBA (Finance) | Consumer Insights & Strategy | Data & Research Projects  
 📧 Email:(7mishragaurav@gmail.com)  
 🔗 [LinkedIn](www.linkedin.com/in/gaurav-mishra-3788ba271)
 🔗 [GitHub](https://github.com/mishragaurav7)
